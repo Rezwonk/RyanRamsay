@@ -10,7 +10,6 @@ Portugal
 00351 927057286
 info@quintadocobral.com
 ```
-
 I have provided evidence of Ryan Ransay being connected to the alias REZWONK in this repository.
 
 There was an incident some years ago which involved Ryan and a friend of his raping an underage girl, although it seems his attempt to run from his crime has been successful to date.
