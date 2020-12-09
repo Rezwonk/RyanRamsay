@@ -16,4 +16,4 @@ There was an incident some years ago which involved Ryan and a friend of his rap
 
 <a href="https://github.com/Rezwonk/RyanRamsay/archive/main.zip">
 <img src="https://raw.githubusercontent.com/Rezwonk/RyanRamsay/main/57471773_2299680220273786_5624822207453593600_n.jpg" /><br>
-Click here to download the entire zip file of evidence against Ryan Ramsay aka RESWONK, Bristol Graffiti Artist.</a>
+<b>Click here to download the entire zip file of evidence against Ryan Ramsay aka RESWONK, Bristol Graffiti Artist.</b></a>
